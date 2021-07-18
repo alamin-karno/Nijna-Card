@@ -14,7 +14,7 @@ for any inquery please contact me.
 
 ### Repository Owner Info 
 
-__Md. Al-Amin_ <br>
+__Md. Al-Amin__ <br>
 __Email :__ [ alamin.karno@outlook.com ](mailto:alamin.karno@outlook.com) <br>
 __Github :__ [Md. Al-Amin](https://github.com/karno786)<br>
 __FaceBook :__ [মোঃ আল-আমিন খন্দকার কর্ণ](https://facebook.com/alamin.kanro786) <br>
